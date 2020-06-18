@@ -1,5 +1,6 @@
 # TWO EVENTS WHICH MARK THE CLOSE OF THE NINETEENTH CENTURY
 ![Branching](Witan_hexateuch.jpg)
+
 When the sun disappeared on the last day of the Nineteenth
 Century, it left in the horizon vivid pictures of two unexpected and
 incomplete events, whose influences will penetrate far into the
